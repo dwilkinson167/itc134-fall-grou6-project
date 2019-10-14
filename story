@@ -11,5 +11,6 @@ I knew that she was worried about my safety but she also understood that young p
 need to stand up and fight for freedom and democracy. I put the masks and umbrellas and my will
 in my backpack because we both knew that I might not be able to come home today.
 
- 
-  
+I headed out, coins in hand, to catch the morning train to get as close to the protest as I could.
+The subways were closed; is this another way for the government to suppress us? I take a closer look see the
+entryway smashed, and turnstiles covered as if damaged.
