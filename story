@@ -17,3 +17,5 @@ entryway smashed, and turnstiles covered as if damaged.
 Suddenly, I got a phone call from a friend. A lot of people were on the way to the airport to join other protestors.
 She asked me where I was and she will pick me up in 10 minutes. At the same time, 
 I heard some people screaming across the street because a group of police officers started hitting them with batons. 
+I rushed out to assist them; however, I knew blind violence would accomplish nothing. I froze in terror once seeing one of the
+protestors being dragged away unconscious. 
